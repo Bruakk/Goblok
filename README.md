@@ -1,0 +1,2 @@
+# Goblok
+Bacod lu kontol
